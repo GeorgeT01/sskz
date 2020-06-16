@@ -1,1 +1,1 @@
-# sskz
+# CCK3 - BSUIR (БГУИР)
